@@ -19,4 +19,4 @@ inicio del juego: Captura-de-pantalla-6-2-2025-105824-127-0-0-1.jpg
 
 Resultado del sorteo: Captura-de-pantalla-6-2-2025-11153-127-0-0-1.jpg
 
-Cuando no se agrega un nombre: Captura-de-pantalla-2025-02-06-113132.png
+Cuando no se agrega un nombre: [Captura-de-pantalla-2025-02-06-113132.png](https://postimg.cc/jwhLjq1s)
